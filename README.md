@@ -1,5 +1,5 @@
 hi  
-know very little python and roblox lua  
+know very little python 
 i am going to beat you to death  
 Bye!  
 
